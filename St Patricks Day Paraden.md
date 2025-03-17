@@ -12,4 +12,4 @@
 - [Irish Central](https://www.facebook.com/IrishCentral/videos)
 ## Andere
 - [Kilkenny](https://www.youtube.com/@StPatricksFestivalKilkenny/streams)
-- 
+- [Cork](https://www.youtube.com/live/5svxnhXEfw0?si=Tb28P7YmaM9pfuGv)

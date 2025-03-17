@@ -5,6 +5,7 @@
 
 ## Live
 ### Dublin
+- [Tourism Ireland](https://www.facebook.com/Ireland) ([YT](https://www.facebook.com/Ireland))
 - [iHollywood TV](https://www.youtube.com/@iHollywoodTVOfficial/streams)
 - [Mail News](https://www.youtube.com/@DailyMailOnlineNews/streams)
 - [Irish Central](https://www.facebook.com/IrishCentral/videos)
